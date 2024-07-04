@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Macanthony
+- 👀 I’m interested in programming
